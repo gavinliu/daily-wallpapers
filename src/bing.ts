@@ -55,10 +55,7 @@ class Bing {
 
   async save() {
     saveToArchive(this.bingImages, this.archivesMainDir);
-    saveToReadme(
-      this.bingImages,
-      "/Users/gavin/Workspace/BiuBiuu/daily-wallpapers/README.md"
-    );
+    saveToReadme(this.bingImages, __dirname + "/../../README.md");
   }
 }
 
