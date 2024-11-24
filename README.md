@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg)
 
 ## Feature
 
