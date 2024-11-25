@@ -2,7 +2,7 @@ name: schedule
 
 on:
   schedule:
-    - cron: "10 8 * * *" # UTC to BJT
+    - cron: "10 16 * * *" # UTC to BJT 00:10
 
 jobs:
   build:
