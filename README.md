@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg)
 
 ## Feature
 
