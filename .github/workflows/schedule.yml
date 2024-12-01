@@ -1,0 +1,46 @@
+name: schedule
+
+on:
+  schedule:
+    - cron: "10 16 * * *" # UTC to BJT 00:10
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+
+    env:
+      TZ: Asia/Shanghai
+
+    steps:
+      - name: Clone repository
+        uses: actions/checkout@v4
+        with:
+          ref: master
+
+      - name: Install NodeJS
+        uses: actions/setup-node@v4
+        with:
+          node-version: 20
+
+      - name: Install Yarn
+        run: |
+          corepack enable
+          yarn install
+
+      - name: Run
+        run: |
+          yarn tsc
+          yarn start
+
+      - name: Commit files
+        run: |
+          git config --local user.name "Liu Yunlong"
+          git config --local user.email "gavin6liu@gmail.com"
+          git add -A
+          git commit -m "Update to `date +'%Y-%m-%d'`"
+
+      - name: Push changes
+        uses: ad-m/github-push-action@master
+        with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
+          branch: master
