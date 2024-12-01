@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg)
 
 ## Feature
 
