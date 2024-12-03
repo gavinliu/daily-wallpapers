@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg)
 
 ## Feature
 
