@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg)
 
 ## Feature
 
