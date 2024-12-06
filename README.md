@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg)
 
 ## Feature
 
