@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg)
 
 ## Feature
 
