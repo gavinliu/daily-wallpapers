@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg)
 
 ## Feature
 
