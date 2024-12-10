@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg)
 
 ## Feature
 
