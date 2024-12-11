@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg)
 
 ## Feature
 
