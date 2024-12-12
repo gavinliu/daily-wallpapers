@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg)
 
 ## Feature
 
