@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg)
 
 ## Feature
 
