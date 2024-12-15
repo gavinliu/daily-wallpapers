@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg)
 
 ## Feature
 
