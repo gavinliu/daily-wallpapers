@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_UHD.jpg)
 
 ## Feature
 
