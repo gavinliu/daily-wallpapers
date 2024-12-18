@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg)
 
 ## Feature
 
