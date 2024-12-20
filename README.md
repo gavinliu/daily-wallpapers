@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg)
 
 ## Feature
 
