@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_UHD.jpg)
 
 ## Feature
 
