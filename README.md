@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg)
 
 ## Feature
 
