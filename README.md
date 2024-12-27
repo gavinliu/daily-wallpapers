@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg)
 
 ## Feature
 
