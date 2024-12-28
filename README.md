@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg)
 
 ## Feature
 
