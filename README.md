@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg)
 
 ## Feature
 
