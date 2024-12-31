@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg)
 
 ## Feature
 
