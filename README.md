@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg)
 
 ## Feature
 
