@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_UHD.jpg)
 
 ## Feature
 
