@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_UHD.jpg)
 
 ## Feature
 
