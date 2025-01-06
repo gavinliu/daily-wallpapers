@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg)
 
 ## Feature
 
