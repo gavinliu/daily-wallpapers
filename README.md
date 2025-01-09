@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_UHD.jpg)
 
 ## Feature
 
