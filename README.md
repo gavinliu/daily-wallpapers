@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg)
 
 ## Feature
 
