@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg)
 
 ## Feature
 
