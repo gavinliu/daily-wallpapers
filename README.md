@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg)
 
 ## Feature
 
