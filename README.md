@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg)
 
 ## Feature
 
