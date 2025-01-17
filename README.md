@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg)
 
 ## Feature
 
