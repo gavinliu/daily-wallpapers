@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg)
 
 ## Feature
 
