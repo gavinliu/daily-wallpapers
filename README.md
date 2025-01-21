@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg)
 
 ## Feature
 
