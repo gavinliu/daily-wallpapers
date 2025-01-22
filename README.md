@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg)
 
 ## Feature
 
