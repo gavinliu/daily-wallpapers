@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg)
 
 ## Feature
 
