@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg)
 
 ## Feature
 
