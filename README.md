@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg)
 
 ## Feature
 
