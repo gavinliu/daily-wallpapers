@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg)
 
 ## Feature
 
