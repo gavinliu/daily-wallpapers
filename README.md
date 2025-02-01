@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg)
 
 ## Feature
 
