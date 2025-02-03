@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg)
 
 ## Feature
 
