@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg)
 
 ## Feature
 
