@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg)
 
 ## Feature
 
