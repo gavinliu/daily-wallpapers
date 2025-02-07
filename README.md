@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg)
 
 ## Feature
 
