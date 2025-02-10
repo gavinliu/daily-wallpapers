@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg)
 
 ## Feature
 
