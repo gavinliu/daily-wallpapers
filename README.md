@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg)
 
 ## Feature
 
