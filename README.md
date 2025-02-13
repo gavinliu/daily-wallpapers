@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg)
 
 ## Feature
 
