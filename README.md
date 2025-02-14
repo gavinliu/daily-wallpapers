@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg)
 
 ## Feature
 
