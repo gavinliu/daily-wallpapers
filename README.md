@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg)
 
 ## Feature
 
