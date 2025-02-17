@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg)
 
 ## Feature
 
