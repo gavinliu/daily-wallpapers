@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_UHD.jpg)
 
 ## Feature
 
