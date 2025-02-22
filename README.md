@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg)
 
 ## Feature
 
