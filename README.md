@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_UHD.jpg)
 
 ## Feature
 
