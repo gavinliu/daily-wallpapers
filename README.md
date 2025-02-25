@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg)
 
 ## Feature
 
