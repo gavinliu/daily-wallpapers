@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_UHD.jpg)
 
 ## Feature
 
