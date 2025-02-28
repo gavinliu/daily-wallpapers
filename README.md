@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg)
 
 ## Feature
 
