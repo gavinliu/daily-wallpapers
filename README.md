@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg)
 
 ## Feature
 
