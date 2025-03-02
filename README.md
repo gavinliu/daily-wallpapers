@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg)
 
 ## Feature
 
