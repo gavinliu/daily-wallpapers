@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg)
 
 ## Feature
 
