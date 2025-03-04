@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_UHD.jpg)
 
 ## Feature
 
