@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg)
 
 ## Feature
 
