@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_UHD.jpg)
 
 ## Feature
 
