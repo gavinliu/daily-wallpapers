@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg)
 
 ## Feature
 
