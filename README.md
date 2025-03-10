@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg)
 
 ## Feature
 
