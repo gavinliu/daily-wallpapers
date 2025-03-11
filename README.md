@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)
 
 ## Feature
 
