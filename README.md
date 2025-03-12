@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg)
 
 ## Feature
 
