@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg)
 
 ## Feature
 
