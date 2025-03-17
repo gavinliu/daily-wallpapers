@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_UHD.jpg)
 
 ## Feature
 
