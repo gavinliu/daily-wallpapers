@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_UHD.jpg)
 
 ## Feature
 
