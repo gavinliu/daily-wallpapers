@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_UHD.jpg)
 
 ## Feature
 
