@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg)
 
 ## Feature
 
