@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg)
 
 ## Feature
 
