@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg)
 
 ## Feature
 
