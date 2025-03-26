@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OdeonAthens_ZH-CN6085881625_UHD.jpg)
 
 ## Feature
 
