@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg)
 
 ## Feature
 
