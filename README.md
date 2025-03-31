@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg)
 
 ## Feature
 
