@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_UHD.jpg)
 
 ## Feature
 
