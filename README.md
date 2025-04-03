@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg)
 
 ## Feature
 
