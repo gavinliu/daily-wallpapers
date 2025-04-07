@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg)
 
 ## Feature
 
