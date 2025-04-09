@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_UHD.jpg)
 
 ## Feature
 
