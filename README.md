@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg)
 
 ## Feature
 
