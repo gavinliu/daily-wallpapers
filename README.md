@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg)
 
 ## Feature
 
