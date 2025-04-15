@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_UHD.jpg)
 
 ## Feature
 
