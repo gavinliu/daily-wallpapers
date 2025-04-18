@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_UHD.jpg)
 
 ## Feature
 
