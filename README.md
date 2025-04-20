@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg)
 
 ## Feature
 
