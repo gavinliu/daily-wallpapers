@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg)
 
 ## Feature
 
