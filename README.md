@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_UHD.jpg)
 
 ## Feature
 
