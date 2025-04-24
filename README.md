@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_UHD.jpg)
 
 ## Feature
 
