@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg)
 
 ## Feature
 
