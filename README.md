@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg)
 
 ## Feature
 
