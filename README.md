@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg)
 
 ## Feature
 
