@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg)
 
 ## Feature
 
