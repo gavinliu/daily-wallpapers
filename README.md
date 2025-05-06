@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg)
 
 ## Feature
 
