@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg)
 
 ## Feature
 
