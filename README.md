@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg)
 
 ## Feature
 
