@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_UHD.jpg)
 
 ## Feature
 
