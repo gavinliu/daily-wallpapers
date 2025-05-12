@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg)
 
 ## Feature
 
