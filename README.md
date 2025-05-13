@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg)
 
 ## Feature
 
