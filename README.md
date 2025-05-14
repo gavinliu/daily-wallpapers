@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg)
 
 ## Feature
 
