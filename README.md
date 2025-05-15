@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_UHD.jpg)
 
 ## Feature
 
