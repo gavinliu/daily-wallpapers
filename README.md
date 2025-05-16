@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg)
 
 ## Feature
 
