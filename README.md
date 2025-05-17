@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg)
 
 ## Feature
 
