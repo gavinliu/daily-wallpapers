@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg)
 
 ## Feature
 
