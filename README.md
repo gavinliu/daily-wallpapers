@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg)
 
 ## Feature
 
