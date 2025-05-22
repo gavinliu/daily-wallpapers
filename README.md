@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg)
 
 ## Feature
 
