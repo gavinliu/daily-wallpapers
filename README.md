@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg)
 
 ## Feature
 
