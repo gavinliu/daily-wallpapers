@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_UHD.jpg)
 
 ## Feature
 
