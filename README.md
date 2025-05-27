@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg)
 
 ## Feature
 
