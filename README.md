@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg)
 
 ## Feature
 
