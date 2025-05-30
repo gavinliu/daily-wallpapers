@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg)
 
 ## Feature
 
