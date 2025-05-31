@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg)
 
 ## Feature
 
