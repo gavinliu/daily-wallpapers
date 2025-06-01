@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg)
 
 ## Feature
 
