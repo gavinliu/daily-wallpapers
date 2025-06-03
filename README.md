@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg)
 
 ## Feature
 
