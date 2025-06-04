@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg)
 
 ## Feature
 
