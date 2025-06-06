@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_UHD.jpg)
 
 ## Feature
 
