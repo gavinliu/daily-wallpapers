@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_UHD.jpg)
 
 ## Feature
 
