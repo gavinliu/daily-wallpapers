@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg)
 
 ## Feature
 
