@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg)
 
 ## Feature
 
