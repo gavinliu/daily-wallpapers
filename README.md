@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg)
 
 ## Feature
 
