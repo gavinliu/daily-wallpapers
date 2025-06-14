@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg)
 
 ## Feature
 
