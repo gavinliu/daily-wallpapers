@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg)
 
 ## Feature
 
