@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg)
 
 ## Feature
 
