@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg)
 
 ## Feature
 
