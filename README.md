@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg)
 
 ## Feature
 
