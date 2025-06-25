@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg)
 
 ## Feature
 
