@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_UHD.jpg)
 
 ## Feature
 
