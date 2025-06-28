@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)
 
 ## Feature
 
