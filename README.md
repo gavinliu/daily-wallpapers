@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_UHD.jpg)
 
 ## Feature
 
