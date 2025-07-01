@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg)
 
 ## Feature
 
