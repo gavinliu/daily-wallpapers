@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg)
 
 ## Feature
 
