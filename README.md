@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg)
 
 ## Feature
 
