@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg)
 
 ## Feature
 
