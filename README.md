@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg)
 
 ## Feature
 
