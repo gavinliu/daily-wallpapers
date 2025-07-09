@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg)
 
 ## Feature
 
