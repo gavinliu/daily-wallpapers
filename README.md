@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_UHD.jpg)
 
 ## Feature
 
