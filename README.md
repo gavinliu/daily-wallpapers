@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg)
 
 ## Feature
 
