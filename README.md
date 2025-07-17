@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_UHD.jpg)
 
 ## Feature
 
