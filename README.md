@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_UHD.jpg)
 
 ## Feature
 
