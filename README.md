@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg)
 
 ## Feature
 
