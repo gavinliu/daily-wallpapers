@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg)
 
 ## Feature
 
