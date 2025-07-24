@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg)
 
 ## Feature
 
