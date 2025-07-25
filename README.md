@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg)
 
 ## Feature
 
