@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg)
 
 ## Feature
 
