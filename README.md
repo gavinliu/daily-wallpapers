@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg)
 
 ## Feature
 
