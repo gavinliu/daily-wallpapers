@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg)
 
 ## Feature
 
