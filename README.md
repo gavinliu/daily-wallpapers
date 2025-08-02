@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg)
 
 ## Feature
 
