@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg)
 
 ## Feature
 
