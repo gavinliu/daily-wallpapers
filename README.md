@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg)
 
 ## Feature
 
