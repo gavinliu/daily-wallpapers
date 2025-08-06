@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)
 
 ## Feature
 
