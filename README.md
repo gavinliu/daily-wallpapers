@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg)
 
 ## Feature
 
