@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg)
 
 ## Feature
 
