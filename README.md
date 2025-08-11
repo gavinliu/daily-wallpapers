@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg)
 
 ## Feature
 
