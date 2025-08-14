@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg)
 
 ## Feature
 
