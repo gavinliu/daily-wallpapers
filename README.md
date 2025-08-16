@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg)
 
 ## Feature
 
