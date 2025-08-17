@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg)
 
 ## Feature
 
