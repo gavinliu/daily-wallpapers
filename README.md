@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg)
 
 ## Feature
 
