@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg)
 
 ## Feature
 
