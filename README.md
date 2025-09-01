@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg)
 
 ## Feature
 
