@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg)
 
 ## Feature
 
