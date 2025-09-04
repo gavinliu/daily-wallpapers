@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg)
 
 ## Feature
 
