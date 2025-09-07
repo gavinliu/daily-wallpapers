@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg)
 
 ## Feature
 
