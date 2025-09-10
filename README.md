@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg)
 
 ## Feature
 
