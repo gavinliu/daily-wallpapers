@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg)
 
 ## Feature
 
