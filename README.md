@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)
 
 ## Feature
 
