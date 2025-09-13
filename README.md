@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg)
 
 ## Feature
 
