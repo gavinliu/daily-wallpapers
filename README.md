@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg)
 
 ## Feature
 
