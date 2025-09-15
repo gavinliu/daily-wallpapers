@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg)
 
 ## Feature
 
