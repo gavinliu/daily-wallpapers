@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg)
 
 ## Feature
 
