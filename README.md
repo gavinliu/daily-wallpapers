@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg)
 
 ## Feature
 
