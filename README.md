@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg)
 
 ## Feature
 
