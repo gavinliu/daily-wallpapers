@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg)
 
 ## Feature
 
