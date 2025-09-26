@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg)
 
 ## Feature
 
