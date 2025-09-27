@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg)
 
 ## Feature
 
