@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg)
 
 ## Feature
 
