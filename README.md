@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg)
 
 ## Feature
 
