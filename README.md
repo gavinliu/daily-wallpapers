@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg)
 
 ## Feature
 
