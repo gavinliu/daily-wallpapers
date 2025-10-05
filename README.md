@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg)
 
 ## Feature
 
