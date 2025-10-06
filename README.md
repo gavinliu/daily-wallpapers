@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg)
 
 ## Feature
 
