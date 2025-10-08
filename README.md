@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg)
 
 ## Feature
 
