@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg)
 
 ## Feature
 
