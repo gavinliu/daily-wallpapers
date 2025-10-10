@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg)
 
 ## Feature
 
