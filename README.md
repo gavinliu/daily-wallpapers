@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg)
 
 ## Feature
 
