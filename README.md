@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg)
 
 ## Feature
 
