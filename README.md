@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg)
 
 ## Feature
 
