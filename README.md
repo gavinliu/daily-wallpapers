@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg)
 
 ## Feature
 
