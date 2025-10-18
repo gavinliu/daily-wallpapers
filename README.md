@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg)
 
 ## Feature
 
