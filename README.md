@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg)
 
 ## Feature
 
