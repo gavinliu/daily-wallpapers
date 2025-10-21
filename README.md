@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg)
 
 ## Feature
 
