@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg)
 
 ## Feature
 
