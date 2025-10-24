@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg)
 
 ## Feature
 
