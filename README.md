@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg)
 
 ## Feature
 
