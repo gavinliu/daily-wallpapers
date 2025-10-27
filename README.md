@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg)
 
 ## Feature
 
