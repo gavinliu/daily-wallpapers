@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg)
 
 ## Feature
 
