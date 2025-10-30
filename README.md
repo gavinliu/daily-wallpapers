@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg)
 
 ## Feature
 
