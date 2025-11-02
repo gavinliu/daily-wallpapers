@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg)
 
 ## Feature
 
