@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg)
 
 ## Feature
 
