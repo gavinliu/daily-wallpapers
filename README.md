@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg)
 
 ## Feature
 
