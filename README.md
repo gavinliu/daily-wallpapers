@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg)
 
 ## Feature
 
