@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg)
 
 ## Feature
 
