@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg)
 
 ## Feature
 
