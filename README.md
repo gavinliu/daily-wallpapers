@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg)
 
 ## Feature
 
