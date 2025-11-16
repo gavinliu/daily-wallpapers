@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg)
 
 ## Feature
 
