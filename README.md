@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg)
 
 ## Feature
 
