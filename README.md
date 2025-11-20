@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg)
 
 ## Feature
 
