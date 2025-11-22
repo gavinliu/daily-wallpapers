@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg)
 
 ## Feature
 
