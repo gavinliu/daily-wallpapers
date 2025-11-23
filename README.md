@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg)
 
 ## Feature
 
