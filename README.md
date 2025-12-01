@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg)
 
 ## Feature
 
