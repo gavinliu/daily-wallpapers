@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg)
 
 ## Feature
 
