@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg)
 
 ## Feature
 
