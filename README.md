@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg)
 
 ## Feature
 
