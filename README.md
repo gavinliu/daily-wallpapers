@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg)
 
 ## Feature
 
