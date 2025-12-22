@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg)
 
 ## Feature
 
