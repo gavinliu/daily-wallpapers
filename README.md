@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg)
 
 ## Feature
 
