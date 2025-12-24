@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg)
 
 ## Feature
 
