@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg)
 
 ## Feature
 
