@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg)
 
 ## Feature
 
