@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg)
 
 ## Feature
 
