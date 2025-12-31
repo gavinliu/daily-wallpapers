@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg)
 
 ## Feature
 
