@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg)
 
 ## Feature
 
