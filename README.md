@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg)
 
 ## Feature
 
