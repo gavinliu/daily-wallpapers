@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg)
 
 ## Feature
 
