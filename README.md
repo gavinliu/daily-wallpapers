@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg)
 
 ## Feature
 
