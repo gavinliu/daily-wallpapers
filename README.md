@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg)
 
 ## Feature
 
