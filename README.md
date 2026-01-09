@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg)
 
 ## Feature
 
