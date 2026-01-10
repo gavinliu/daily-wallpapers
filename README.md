@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg)
 
 ## Feature
 
