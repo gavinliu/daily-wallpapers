@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg)
 
 ## Feature
 
