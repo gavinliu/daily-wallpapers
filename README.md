@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg)
 
 ## Feature
 
