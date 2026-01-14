@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg)
 
 ## Feature
 
