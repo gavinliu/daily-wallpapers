@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg)
 
 ## Feature
 
