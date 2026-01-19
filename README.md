@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg)
 
 ## Feature
 
