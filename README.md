@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg)
 
 ## Feature
 
