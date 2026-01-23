@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg)
 
 ## Feature
 
