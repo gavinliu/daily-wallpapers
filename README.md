@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg)
 
 ## Feature
 
