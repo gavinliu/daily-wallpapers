@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg)
 
 ## Feature
 
