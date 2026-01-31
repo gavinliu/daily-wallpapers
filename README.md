@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg)
 
 ## Feature
 
