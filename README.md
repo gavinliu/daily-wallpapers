@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg)
 
 ## Feature
 
