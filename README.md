@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg)
 
 ## Feature
 
