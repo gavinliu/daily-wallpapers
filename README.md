@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg)
 
 ## Feature
 
