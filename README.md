@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_UHD.jpg)
 
 ## Feature
 
