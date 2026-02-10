@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg)
 
 ## Feature
 
