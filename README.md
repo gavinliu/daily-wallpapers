@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg)
 
 ## Feature
 
