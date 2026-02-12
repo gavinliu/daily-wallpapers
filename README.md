@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg)
 
 ## Feature
 
