@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg)
 
 ## Feature
 
