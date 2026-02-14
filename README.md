@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg)
 
 ## Feature
 
