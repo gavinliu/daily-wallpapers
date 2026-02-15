@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg)
 
 ## Feature
 
