@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg)
 
 ## Feature
 
