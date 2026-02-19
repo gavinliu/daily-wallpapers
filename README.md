@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg)
 
 ## Feature
 
