@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg)
 
 ## Feature
 
