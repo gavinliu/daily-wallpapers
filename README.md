@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg)
 
 ## Feature
 
