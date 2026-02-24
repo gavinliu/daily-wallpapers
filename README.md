@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg)
 
 ## Feature
 
