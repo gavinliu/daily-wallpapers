@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)
 
 ## Feature
 
