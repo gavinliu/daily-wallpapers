@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg)
 
 ## Feature
 
