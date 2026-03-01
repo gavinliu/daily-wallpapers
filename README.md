@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg)
 
 ## Feature
 
