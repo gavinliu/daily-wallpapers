@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg)
 
 ## Feature
 
