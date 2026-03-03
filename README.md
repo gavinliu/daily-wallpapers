@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg)
 
 ## Feature
 
