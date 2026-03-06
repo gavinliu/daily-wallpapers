@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg)
 
 ## Feature
 
