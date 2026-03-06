@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg)
 
 ## Feature
 
