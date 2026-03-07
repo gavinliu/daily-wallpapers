@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg)
 
 ## Feature
 
