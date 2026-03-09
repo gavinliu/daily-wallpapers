@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg)
 
 ## Feature
 
