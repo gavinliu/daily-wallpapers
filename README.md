@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg)
 
 ## Feature
 
