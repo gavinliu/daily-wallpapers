@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg)
 
 ## Feature
 
