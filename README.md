@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg)
 
 ## Feature
 
