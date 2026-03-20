@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg)
 
 ## Feature
 
