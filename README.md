@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg)
 
 ## Feature
 
