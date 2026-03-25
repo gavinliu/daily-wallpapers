@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg)
 
 ## Feature
 
