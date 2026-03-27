@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg)
 
 ## Feature
 
