@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_UHD.jpg)
 
 ## Feature
 
