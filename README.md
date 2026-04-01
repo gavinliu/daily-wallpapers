@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg)
 
 ## Feature
 
