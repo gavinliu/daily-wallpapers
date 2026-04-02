@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg)
 
 ## Feature
 
