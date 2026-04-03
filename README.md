@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg)
 
 ## Feature
 
