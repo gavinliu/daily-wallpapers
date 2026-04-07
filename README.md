@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg)
 
 ## Feature
 
