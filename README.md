@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg)
 
 ## Feature
 
