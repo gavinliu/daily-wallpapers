@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg)
 
 ## Feature
 
