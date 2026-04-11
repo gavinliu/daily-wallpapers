@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg)
 
 ## Feature
 
