@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg)
 
 ## Feature
 
