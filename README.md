@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg)
 
 ## Feature
 
