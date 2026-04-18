@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg)
 
 ## Feature
 
