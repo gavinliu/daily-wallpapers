@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg)
 
 ## Feature
 
