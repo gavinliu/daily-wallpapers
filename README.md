@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg)
 
 ## Feature
 
