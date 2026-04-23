@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg)
 
 ## Feature
 
