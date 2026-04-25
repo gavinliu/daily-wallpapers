@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg)
 
 ## Feature
 
