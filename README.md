@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg)
 
 ## Feature
 
