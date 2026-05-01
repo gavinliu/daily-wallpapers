@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg)
 
 ## Feature
 
