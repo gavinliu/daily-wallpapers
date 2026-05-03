@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg)
 
 ## Feature
 
