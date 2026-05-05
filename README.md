@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_UHD.jpg)
 
 ## Feature
 
