@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg)
 
 ## Feature
 
