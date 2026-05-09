@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg)
 
 ## Feature
 
