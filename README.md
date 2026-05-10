@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg)
 
 ## Feature
 
