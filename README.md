@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg)
 
 ## Feature
 
