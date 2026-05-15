@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg)
 
 ## Feature
 
