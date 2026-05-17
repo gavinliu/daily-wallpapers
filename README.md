@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg)
 
 ## Feature
 
