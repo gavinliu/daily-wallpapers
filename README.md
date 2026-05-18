@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg)
 
 ## Feature
 
