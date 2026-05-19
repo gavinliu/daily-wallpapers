@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg)
 
 ## Feature
 
