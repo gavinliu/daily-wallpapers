@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg)
 
 ## Feature
 
