@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg)
 
 ## Feature
 
