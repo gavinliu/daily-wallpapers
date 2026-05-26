@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg)
 
 ## Feature
 
