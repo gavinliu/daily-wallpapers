@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg)
 
 ## Feature
 
