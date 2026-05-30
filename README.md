@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg)
 
 ## Feature
 
