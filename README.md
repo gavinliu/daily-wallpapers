@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg)
 
 ## Feature
 
