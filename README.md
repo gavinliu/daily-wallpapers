@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg)
 
 ## Feature
 
