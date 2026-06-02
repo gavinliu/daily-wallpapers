@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg)
 
 ## Feature
 
