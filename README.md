@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_UHD.jpg)
 
 ## Feature
 
