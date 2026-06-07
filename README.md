@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg)
 
 ## Feature
 
