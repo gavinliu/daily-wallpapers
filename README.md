@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg)
 
 ## Feature
 
