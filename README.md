@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg)
 
 ## Feature
 
