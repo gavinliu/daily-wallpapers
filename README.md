@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg)
 
 ## Feature
 
