@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg)
 
 ## Feature
 
