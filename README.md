@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg)
 
 ## Feature
 
