@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg)
 
 ## Feature
 
