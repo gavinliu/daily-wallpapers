@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg)
 
 ## Feature
 
