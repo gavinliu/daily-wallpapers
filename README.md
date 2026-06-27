@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg)
 
 ## Feature
 
