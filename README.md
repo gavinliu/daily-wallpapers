@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg)
 
 ## Feature
 
