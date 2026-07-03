@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg)
 
 ## Feature
 
