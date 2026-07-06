@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg)
 
 ## Feature
 
