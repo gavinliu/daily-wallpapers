@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg)
 
 ## Feature
 
