@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg)
 
 ## Feature
 
