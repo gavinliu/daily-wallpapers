@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg)
 
 ## Feature
 
