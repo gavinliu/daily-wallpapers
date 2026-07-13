@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg)
 
 ## Feature
 
