@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg)
 
 ## Feature
 
