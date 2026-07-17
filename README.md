@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg)
 
 ## Feature
 
