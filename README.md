@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg)
 
 ## Feature
 
