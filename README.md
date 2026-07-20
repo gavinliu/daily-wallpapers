@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg)
 
 ## Feature
 
