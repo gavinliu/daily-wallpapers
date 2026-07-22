@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_UHD.jpg)
 
 ## Feature
 
