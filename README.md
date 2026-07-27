@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg)
 
 ## Feature
 
