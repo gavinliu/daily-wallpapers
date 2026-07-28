@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg)
 
 ## Feature
 
