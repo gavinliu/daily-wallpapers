@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg)
 
 ## Feature
 
