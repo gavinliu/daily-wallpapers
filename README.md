@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg)
 
 ## Feature
 
