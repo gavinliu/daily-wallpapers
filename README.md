@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg)
 
 ## Feature
 
