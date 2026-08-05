@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg)
 
 ## Feature
 
