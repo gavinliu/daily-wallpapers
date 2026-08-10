@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg)
 
 ## Feature
 
