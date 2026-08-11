@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg)
 
 ## Feature
 
