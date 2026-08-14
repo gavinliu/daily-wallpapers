@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg)
 
 ## Feature
 
