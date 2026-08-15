@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg)
 
 ## Feature
 
