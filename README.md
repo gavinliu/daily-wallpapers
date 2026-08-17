@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg)
 
 ## Feature
 
