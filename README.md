@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg)
 
 ## Feature
 
