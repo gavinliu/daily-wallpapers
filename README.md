@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg)
 
 ## Feature
 
