@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg)
 
 ## Feature
 
