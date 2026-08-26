@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg)
 
 ## Feature
 
