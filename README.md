@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg)
 
 ## Feature
 
