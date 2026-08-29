@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg)
 
 ## Feature
 
