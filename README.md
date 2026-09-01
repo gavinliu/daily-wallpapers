@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg)
 
 ## Feature
 
