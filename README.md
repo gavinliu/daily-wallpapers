@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg)
 
 ## Feature
 
