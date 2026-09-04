@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg)
 
 ## Feature
 
