@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg)
 
 ## Feature
 
