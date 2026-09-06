@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg)
 
 ## Feature
 
