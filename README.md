@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg)
 
 ## Feature
 
