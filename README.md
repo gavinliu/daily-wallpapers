@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg)
 
 ## Feature
 
