@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg)
 
 ## Feature
 
