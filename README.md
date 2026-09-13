@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg)
 
 ## Feature
 
