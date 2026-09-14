@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg)
 
 ## Feature
 
