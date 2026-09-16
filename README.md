@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg)
 
 ## Feature
 
