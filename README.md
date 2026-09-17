@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg)
 
 ## Feature
 
