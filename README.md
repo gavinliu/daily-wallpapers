@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg)
 
 ## Feature
 
