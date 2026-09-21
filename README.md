@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg)
 
 ## Feature
 
