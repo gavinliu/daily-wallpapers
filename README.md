@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg)
 
 ## Feature
 
