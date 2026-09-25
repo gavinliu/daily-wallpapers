@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg)
 
 ## Feature
 
