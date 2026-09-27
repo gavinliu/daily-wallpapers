@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg)
 
 ## Feature
 
