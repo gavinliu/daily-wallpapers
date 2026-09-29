@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg)
 
 ## Feature
 
