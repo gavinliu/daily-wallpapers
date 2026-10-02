@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg)
 
 ## Feature
 
