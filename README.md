@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg)
 
 ## Feature
 
