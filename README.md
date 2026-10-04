@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg)
 
 ## Feature
 
