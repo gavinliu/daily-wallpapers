@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg)
 
 ## Feature
 
