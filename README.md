@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg)
 
 ## Feature
 
