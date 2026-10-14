@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg)
 
 ## Feature
 
