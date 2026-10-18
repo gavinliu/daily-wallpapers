@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg)
 
 ## Feature
 
