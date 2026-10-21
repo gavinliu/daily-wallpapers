@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg)
 
 ## Feature
 
