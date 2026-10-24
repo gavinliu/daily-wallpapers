@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg)
 
 ## Feature
 
