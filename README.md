@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg)
 
 ## Feature
 
