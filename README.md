@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg)
 
 ## Feature
 
