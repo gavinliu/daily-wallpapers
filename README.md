@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg)
 
 ## Feature
 
