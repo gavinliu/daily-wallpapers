@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg)
 
 ## Feature
 
