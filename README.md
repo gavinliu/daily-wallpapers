@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg)
 
 ## Feature
 
