@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg)
 
 ## Feature
 
