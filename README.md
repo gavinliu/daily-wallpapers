@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg)
 
 ## Feature
 
