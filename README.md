@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg)
 
 ## Feature
 
