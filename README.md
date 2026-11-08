@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_UHD.jpg)
 
 ## Feature
 
