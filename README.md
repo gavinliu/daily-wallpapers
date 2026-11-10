@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg)
 
 ## Feature
 
