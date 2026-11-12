@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg)
 
 ## Feature
 
