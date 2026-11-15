@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_UHD.jpg)
 
 ## Feature
 
