@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg)
 
 ## Feature
 
