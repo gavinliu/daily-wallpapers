@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_UHD.jpg)
 
 ## Feature
 
