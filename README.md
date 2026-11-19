@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg)
 
 ## Feature
 
