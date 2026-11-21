@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg)
 
 ## Feature
 
