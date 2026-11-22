@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg)
 
 ## Feature
 
