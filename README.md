@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg)
 
 ## Feature
 
