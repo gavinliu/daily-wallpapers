@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg)
 
 ## Feature
 
