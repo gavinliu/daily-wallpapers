@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg)
 
 ## Feature
 
