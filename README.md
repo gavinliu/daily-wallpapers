@@ -1,6 +1,6 @@
 # Daily Wallpapers
   
-![](https://www.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg)
 
 ## Feature
 
